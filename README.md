@@ -1,0 +1,1 @@
+# Ultimate-axial-capacity-of-cellular-steel-stub-columns
